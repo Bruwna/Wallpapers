@@ -1,6 +1,6 @@
     ᐢ⑅ᐢ
 ꒰ ˶• ༝ •˶꒱
-./づ~ ♡    oi, aqui tem alguns wallpapers de minha escolha
+./づ~ ♡    Oi, aqui tem alguns wallpapers de minha escolha "૮₍ •⤙•˶
 
                      ︵‿︵‿୨♡୧‿︵‿︵
                      
